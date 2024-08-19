@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on Networking guys 
 - 📫 How to reach me ‫abdulmohsenAlbarrak456@gmail.com‬
 - 😄 Pronouns: ...
-- ⚡ Fun fact: i think that i can think outside of the Box.
+- ⚡ Fun fact: i think that i can think outside of the Box and i like detective conan.
 
 <!---
 Abdulmohsen/Hasson is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
